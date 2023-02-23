@@ -1,1 +1,1 @@
-Multi-omics profiles can be downloaded at this link: https://bit.ly/3NZuFcQ
+Multi-omics profiles can be downloaded at this link: shorturl.at/pxyCI
